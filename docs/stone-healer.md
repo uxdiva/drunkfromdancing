@@ -532,9 +532,11 @@ Then I felt a new sensation, a presence, like something sniffing me out. There w
 
 
 ---
+
 Title: Stone Healer
 Category: science-fiction
 Version: 1
 Date: September 2019
 layout: fiction
+
 ---

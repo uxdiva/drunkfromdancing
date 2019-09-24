@@ -69,9 +69,11 @@ John’s whole life was like this game. He saw that now. Every time he got ready
 Daniel jerked away and the knife nicked him again. John liked the way his blood, a deep mauve, mixed with the syrupy ham juice on the blade. The smell of Daniel’s fear gave him a high that calmed his trembling fingers and filled his blood with malice. He plunged the knife in and the madness was finally silenced.
 
 ---
+
 Title: The Game
 Category: fiction
 Version: 1
 Date: September 2019
 layout: fiction
+
 ---

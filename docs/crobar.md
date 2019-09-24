@@ -63,9 +63,11 @@ She pulled her fingers through her tousled locks, stood and gave him a big smile
 He should have kept her dancing. He could of had anything if he had kept her dancing. But she was herself again. And he was not her type.
 
 ---
+
 Title: Crobar
 Category: fiction
 Version: 1
 Date: September 2019
 layout: fiction
+
 ---
