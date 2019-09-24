@@ -1,11 +1,3 @@
----
-Title: The Game
-Category: fiction
-Version: 1
-Date: September 2019
-layout: fiction
----
-
 # The Game
 
 John slammed his card on the table. Queen of Spades. Trump Card. He could feel the moisture gathering on his top lip and he raised his hand to wipe it off. Bid Wiz. Nobody knew why it caused such extremes of emotion, it would turn the most docile person into a raving lunatic. And don’t even think of playing for money, cause its not worth your life reneging for a coupla quarters. Bid Wiz was the last thing John needed. He was already tense, it only fed his anger.
@@ -75,3 +67,11 @@ Daniel tried to move, but John was ready with the knife. He pressed it harder ag
 John’s whole life was like this game. He saw that now. Every time he got ready to play his ace, some clown was up there smiling with a joker pasted to his forehead. School, work, with the honeys. It didn’t matter. He got trumped at every turn. He was raging inside. Raging against all those years getting nowhere. He wanted to scream. He wanted out.
 
 Daniel jerked away and the knife nicked him again. John liked the way his blood, a deep mauve, mixed with the syrupy ham juice on the blade. The smell of Daniel’s fear gave him a high that calmed his trembling fingers and filled his blood with malice. He plunged the knife in and the madness was finally silenced.
+
+---
+Title: The Game
+Category: fiction
+Version: 1
+Date: September 2019
+layout: fiction
+---

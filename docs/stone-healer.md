@@ -1,11 +1,3 @@
----
-Title: Stone Healer
-Category: science-fiction
-Version: 1
-Date: September 2019
-layout: fiction
----
-
 # Stone Healer
 
 *Tilsa*
@@ -537,3 +529,12 @@ I heard my mother’s voice images ring in the pattern, “This is our new Ndag�
 I felt more minds join in, the Txousa, the Rye and the Mahj joining with the Hota nation, becoming my people. Their power welled with in me like a great storm that only Libby’s whispers could help me control.
 
 Then I felt a new sensation, a presence, like something sniffing me out. There was no time left. Quickly I reached through the pattern with a mental speed I did know I was capable of. I tore at the tender flesh that connected brain to body, destroying the destroyer. The Ndagí died in Marrassa.
+
+
+---
+Title: Stone Healer
+Category: science-fiction
+Version: 1
+Date: September 2019
+layout: fiction
+---
