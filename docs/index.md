@@ -13,26 +13,7 @@ Thanks & Enjoy.
 
 ---
 ## Contents
-[Crobar](crobar)
 
-[The Game](the-game)
-
-[The Creator](the-creator)
-
-[Stone Healer](stone-healer)
-
-[Peace](peace)
-
-[Sun & Moon](sun-and-moon)
-
-[Snakes](snakes)
-
-[Beads & Sugarcane](beads-and-sugarcane)
-
-[Loup-Garou](loup-garou)
-
----
-Posts
 <ul>
   {% for post in site.posts %}
     <li>
