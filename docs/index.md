@@ -30,3 +30,13 @@ Thanks & Enjoy.
 [Beads & Sugarcane](beads-and-sugarcane)
 
 [Loup-Garou](loup-garou)
+
+---
+Posts
+<ul>
+  {% for post in site.posts %}
+    <li>
+      <a href="{{ post.url }}">{{ post.title }}</a>
+    </li>
+  {% endfor %}
+</ul>
