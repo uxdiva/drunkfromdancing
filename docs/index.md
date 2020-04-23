@@ -7,7 +7,7 @@ What I don't write ... fiction and poetry.  And I miss that. So I've decided it'
 
 So here is **Drunk from Dancing** ... a collection of poetry and short stories.
 
-Feel free to provide feedback, kudos, or even to share the link to the site, just remember this is my work and under my copyright.
+Feel free to provide feedback, kudos, or even to share the link to the site, just remember this is my work and under my copyright. 
 
 Thanks & Enjoy.
 
