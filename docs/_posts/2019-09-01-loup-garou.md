@@ -14,7 +14,7 @@ She was about to run. He could hear her thoughts telling her to run. “I mean y
 
 When she was calm, he whispered softly, “Adina, you mustn’t kill yourself.”
 
-“And what ‘ave I to live for?”
+“And wat ah 'ave to live for?”
 
 “Let me show you.”
 
@@ -88,9 +88,7 @@ She was laid on a litter with flowers. The villagers paraded her through the str
 
 Adina sat in her throne. She wore a crown upon her head. A long dress made of pearls covered her body. Julian had gotten it for her sometime ago, and she wore it always, at times like this. The pearls fit against the curves of her body then fanned out behind her in a long train. They clicked against the stairs as she walked down them.
 
-She stood in the center of the temple--where their bed had been before Julian moved it to more private quarters. The litter was set at her feet. She looked at the small child who’s small eyes were filled with innocence. Not reverence or fear, but innocence. Adina had not seen that in a long time. and Julian knew it had been foolish of them to bring such a small child before her. Even though he could no longer read her mind, he knew this little miss was reminding her of her own lost one. In all the years of feeding, Adina had never once touched small children.
-
-Adina brushed her hand against the tattoo on the child’s cheek, then she simply turned away. She walked the stairs to her throne--pearls clicking behind her--sat down and was quiet.
+She stood in the center of the temple--where their bed had been before Julian moved it to more private quarters. The litter was set at her feet. She looked at the small child who’s small eyes were filled with innocence. Not reverence or fear, but innocence. Adina had not seen that in a long time. Adina brushed her hand against the tattoo on the child’s cheek, then she simply turned away. She walked the stairs to her throne--pearls clicking behind her--sat down and was quiet.
 
 “Perhaps, she not to you likin’?” a village man asked.
 
@@ -104,7 +102,7 @@ Adina waved him away, turning in her chair so that she could see the jungle from
 
 Julian stood from his throne and dismissed the people. “The Queen wants to be alone. You heard her. There will be no sacrifice today.”
 
-The people left the temple. Julian could smell the fear, their thoughts questioning what it could mean that the Queen wouldn’t feed.
+The people left the temple. Julian could smell the fear, their thoughts questioning what it could mean that the Queen wouldn’t feed. And Julian knew it had been foolish of them to bring such a small child before her. Even though he could no longer read her mind, he knew this little miss was reminding her of her own lost one. In all the years of feeding, Adina had never once touched a child.
 
 When they had all gone, Adina rose then walked out onto the balcony. She sat at the back of the temple where the villagers could not see her and let the night fall across her face.
 
@@ -118,7 +116,7 @@ That’s how Julian found her. Her pearls glistened in the moonlight, like her e
 
 “I wanted to take you away from death.”
 
-“Eh? How you mean?” She turned her eyes on him and they were filled with anger. “How you mean, take me away from death? Death is everyw’ere. All I eva see is blood and death. I am death!”
+“Eh? How you mean?” She turned her eyes on him and they were filled with anger. “How you mean, take me away from death? Death is everyw’ere. All ah ever see is blood and death. I am death!”
 
 “Adina...” He stepped towards her.
 
