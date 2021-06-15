@@ -1,12 +1,12 @@
 # Loup-Garou
 
-Death lurked in her window--laughing. He saw it there; a looming shape in the shadows--taunting her, taunting her. In a year she had lost her husband and child. Now she sat, surrounded by candle light, sleeping potions in a bottle on the table, and death taunting her.
+Death lurked in her window--laughing. He saw it there; a looming shape in the shadows--taunting her, taunting her. In a year she had lost her husband and child. Now she sat, surrounded by candlelight, sleeping potions in a bottle on the table, and death taunting her.
 
 He wanted to take her away from all that death. He wanted to show her that there was something lasting, something she could have faith in throughout eternity. Death only laughed--a husky tenor laugh--and told him he was a fool and should let her go.
 
 “She belongs to me, Julian.” It bared its teeth with another long laugh.
 
-He was determined. He pushed death aside and walked into the small house. The candles created a glow around the table and sofa. She sat in the center of the sofa. The long dark plaits of her hair were falling and framing her honey brown face. She had the bottle in her hands now. She lifted it towards her mouth--hands shaking. In a flash Julian was across the room. He placed his hand over her own, shaking his head no.
+He was determined. He pushed death aside and walked into the small house. The candles created a glow around the table and sofa. She sat in the center of the sofa. The long dark plaits of her hair were falling and framing her honey-brown face. She had the bottle in her hands now. She lifted it towards her mouth--hands shaking. In a flash, Julian was across the room. He placed his hand over her own, shaking his head no.
 
 She jumped. Dropping the bottle, she jumped away from him. He could smell her fright, could read the fear in her mind. In her eyes he could see his own face. His tanned skin had a strange bluish tone to it, and lineless--not just without wrinkles, but lineless as if his skin was made of porcelain. Then there were his eyes, the hazel and black and white, all looked made of glass; not human at all.
 
@@ -24,9 +24,9 @@ When she was calm, he whispered softly, “Adina, you mustn’t kill yourself.�
 
 The calm he forced on her made her hesitate, made her even slightly curious. But underneath, that fear was still boiling, trying to erupt and move her from him. She shouldn’t be so frightened, he thought, I only mean her well.
 
-He stepped forward and pulled her into his arms. “Come with me.” He lifted her. And as he strode out the front door he heard death laughing. “She’s mine now!” he said to death. And with that he lifted her towards the Heavens, then flew towards his home.
+He stepped forward and pulled her into his arms. “Come with me.” He lifted her. And as he strode out the front door he heard death laughing. “She’s mine now!” he said to death. And with that, he lifted her towards the Heavens, then flew towards his home.
 
-He had chosen to live in the jungle; in a place populated by only the wild creatures. He had made his home in the ruin of an ancient temple. There he lay her on a feather bed. It was in the very center of what had been a throne room. The ancient stone chairs still stood at the top of the stairs against the far wall. Between the chairs an archway led to a small balcony. Not far from the bed a long table with eight chairs stood. On the table were several candles. He lit them so she could see. (His eyes had no need of candles in darkness, the thin moonlight was enough.) Torches hung out from the walls all around the large room, but besides that, the room was empty.
+He had chosen to live in the jungle; in a place populated by only the wild creatures. He had made his home in the ruin of an ancient temple. There he lay her on a feather bed. It was in the very center of what had been a throne room. The ancient stone chairs still stood at the top of the stairs against the far wall. Between the chairs, an archway led to a small balcony. Not far from the bed a long table with eight chairs stood. On the table were several candles. He lit them so she could see. (His eyes had no need of candles in darkness, the thin moonlight was enough.) Torches hung out from the walls all around the large room, but besides that, the room was empty.
 
 And it was humid in that jungle, so humid. Moisture clung to everything, weighing down everything. But this only stirred the lovers of the evening--exotic birds, insects, monkeys, jungle rats were all alive with romance. And the night flowers filled the temple with their fragrance.
 
@@ -40,9 +40,9 @@ He pulled away and looked again into her eyes. Hunger. Hunger had replaced the f
 
 He kissed her again, pushing her body back into the bed. He let his hands explore her, claim her. And his lips followed his hands. The jungle helped him seduce her. Her own soft moans echoed through the temple then floated out to add to the noise of the night lovers. She reached back and tightened her fingers around the edges of the pillow, as if to hold her there, to keep her from floating away, finally, with all that heat. And her body pressed against his.
 
-She was his now, he’d show death. With that thought he bit her nipple, then nursed--like an infant--nursed the red milk from her. Her moans grew louder, her heart beat faster. And he could see now, her memories. Her husband had fallen into one of the machines at the sugar cane factory. There wasn’t even enough of him left to bury. Not long after, her little girl died of the pox.
+She was his now, he’d show death. With that thought, he bit her nipple, then nursed--like an infant--nursed the red milk from her. Her moans grew louder, her heart beat faster. And he could see now, her memories. Her husband had fallen into one of the machines at the sugar cane factory. There wasn’t even enough of him left to bury. Not long after, her little girl died of the pox.
 
-Adina cried as he drank these memories from her. “Let them go my love,” he whispered then continued to drink.
+Adina cried as he drank these memories from her. “Let them go, my love,” he whispered then continued to drink.
 
 Finally, the flow became weak, her heartbeat slowed. She was so close to death now that there could be nothing to save her, nothing but his gift.
 
@@ -58,29 +58,29 @@ She slept. The lines disappeared from her face and the blue tone crept under her
 
 He watched her sleep awhile longer, then crept in next to her and found his own sleep in her arms.
 
-She was magnificent. Julian thought that there was nothing else like her. It was as if she was moved by some deeper force. She took to her nature right away, even leading him in their conquests. And her powers were strong. In the beginning she merely grabbed her victims, dominating them with her strength. For her first kill, she returned to her hometown, Port-of-Spain. A man walked through the streets; his girlfriend by his side. Adina flew from the darkness and grabbed the man. And while she sucked his blood, she held the girl close to her to keep her from screaming. Then when she exhausted his blood, she turned on the girl.
+She was magnificent. Julian thought that there was nothing else like her. It was as if she was moved by some deeper force. She took to her nature right away, even leading him in their conquests. And her powers were strong. In the beginning, she merely grabbed her victims, dominating them with her strength. For her first kill, she returned to her hometown, Port-of-Spain. A man walked through the streets; his girlfriend by his side. Adina flew from the darkness and grabbed the man. And while she sucked his blood, she held the girl close to her to keep her from screaming. Then when she exhausted his blood, she turned on the girl.
 
 Later, she began playing with her victims--the way a cat toys with a mouse. Pouncing, then letting them loose so that she could pounce again. Then finally, when they were exhausted and she had grown bored, she would feed.
 
-One young man she chased across the entire “two by four” island of St. Croix. Night after night she haunted him. And the poor soul could find no solace from the church, nor the Obeah woman. Adina lurked in the window, her husky laugh taunting him, as the Obeah woman told him he was marked for death. Julian heard her say it, “Marked for death,” and he thought it was strange that she should choose these words. “Death” and Adina.
+One young man, she chased across the entire “two by four” island of St. Croix. Night after night she haunted him. And the poor soul could find no solace from the church, nor the Obeah woman. Adina lurked in the window, her husky laugh taunting him, as the Obeah woman told him he was marked for death. Julian heard her say it, “Marked for death,” and he thought it was strange that she should choose these words. “Death” and Adina.
 
-There seemed no end to her hunger. She killed them all, as one possessed. She threw their empty bodies in to the Amazon or the Caribbean Sea. She was a Loup-garou. She flew across the Caribbean, Brazil, Venezuela, Columbia...teaching them her name. All this excited Julian. To be sure, he was a killer too, but Adina was different--she made things happen.
+There seemed no end to her hunger. She killed them all, as one possessed. She threw their empty bodies into the Amazon or the Caribbean Sea. She was a Loup-garou. She flew across the Caribbean, Brazil, Venezuela, Columbia...teaching them her name. All this excited Julian. To be sure, he was a killer too, but Adina was different--she made things happen.
 
-After awhile she became contented with bringing small groups of people to the temple. “To worship me,” she would say, as if she truly was a queen.
+After a while she became contented with bringing small groups of people to the temple. “To worship me,” she would say, as if she truly was a queen.
 
 Sacrifice. That what the poor pathetics she had captured whispered through the night. They must sacrifice to their god. Adina became their religion. And as with all religions, they thought if they were faithful to her she would keep them safe--silly humans. They even had priests, living in the temple, ready to do her bidding.
 
-Adina no longer needed to kill, she was kept fed by sips of blood from this body and from that. Her skin no longer wore a blue undertone--kept alive by the blood of her slaves--she looked alive, as warm as she had in life. Yet she enjoyed her hunts, lurking in the windows and laughing at the poor victimes inside. Even among her followers there would be the sacrifice, every now and then, to remind them of her power.
+Adina no longer needed to kill, she was kept fed by sips of blood from this body and from that. Her skin no longer wore a blue undertone--kept alive by the blood of her slaves--she looked alive, as warm as she had in life. Yet she enjoyed her hunts, lurking in the windows and laughing at the poor victims inside. Even among her followers, there would be the sacrifice, every now and then, to remind them of her power.
 
-Those were happy times for Julian. He watched her, sometimes feeding along side her, and baskeing in her glory. Their ancient temple was alive again, and the people worshiped at their feet. And the years passed. Adina’s followers had created a nation to worship her, all of them kept secret in this forgotten part of the jungle. The people built houses made of banana leaves and learned to live the ancient ways of the Natives who had built that temple. That was Adina’s wish, after all.
+Those were happy times for Julian. He watched her, sometimes feeding alongside her, and basking in her glory. Their ancient temple was alive again, and the people worshiped at their feet. And the years passed. Adina’s followers had created a nation to worship her, all of them kept secret in this forgotten part of the jungle. The people built houses made of banana leaves and learned to live the ancient ways of the Natives who had built that temple. That was Adina’s wish, after all.
 
 Julian marveled in the shadow of her glory. He thought it would go on this way forever. Yet at the same time he began to wonder about her powers, wonder how she was so strong that not even the sun could defy her. She was not like him at all. But something bigger.
 
-On the day of the first sacrifice in many moons, the village was alive before dawn. Julian could hear them, rattling through the jungle, as they began to prepare for the big fête. They began by cleaning. They swept out their huts, then cleared the footpaths and the common areas, while singing for Adina to come cleanse their village of evil spirits. Then they bathed themselves thoroughly, and painted their faces the colors of the earth--in that way becoming earth bound. They began to cook a huge feast that flavored the aroma of the jungle.
+On the day of the first sacrifice in many moons, the village was alive before dawn. Julian could hear them, rattling through the jungle, as they began to prepare for the big fête. They began by cleaning. They swept out their huts, then cleared the footpaths and the common areas, while singing for Adina to come cleanse their village of evil spirits. Then they bathed themselves thoroughly, and painted their faces the colors of the earth--in that way becoming earthbound. They began to cook a huge feast that flavored the aroma of the jungle.
 
 As the day wore on, their songs became louder. Drums were added and rattles and wooden flutes. Some wore costume to look like the animals of the jungle, some to look like evil spirits. And this carnival paraded through the streets of the town.
 
-The people grew drunk with dancing. Julian watched them through the temple window. Their bodies were tired, but some how they kept moving, caught up in the spirit. They were trying to clear their minds--trying to prepare themselves for Adina’s wisdom. And each time the sun moved in the sky they became more frantic.
+The people grew drunk with dancing. Julian watched them through the temple window. Their bodies were tired, but somehow they kept moving, caught up in the spirit. They were trying to clear their minds--trying to prepare themselves for Adina’s wisdom. And each time the sun moved in the sky they became more frantic.
 
 Finally, the chosen was brought out. A little girl, just turned four that moon. She was clothed in a simple white dress, like a christening gown. On her left cheek was a tattoo of a moon. She had worn it since birth to show that she belonged to Adina. In her short life she had been spoiled, overindulged, as if she was Adina herself. Now it was time. Sacrifice.
 
@@ -104,7 +104,7 @@ Julian stood from his throne and dismissed the people. “The Queen wants to be 
 
 The people left the temple. Julian could smell the fear, their thoughts questioning what it could mean that the Queen wouldn’t feed. And Julian knew it had been foolish of them to bring such a small child before her. Even though he could no longer read her mind, he knew this little miss was reminding her of her own lost one. In all the years of feeding, Adina had never once touched a child.
 
-When they had all gone, Adina rose then walked out onto the balcony. She sat at the back of the temple where the villagers could not see her and let the night fall across her face.
+When they had all gone, Adina rose then walked out onto the balcony. She sat at the back of the temple where the villagers could not see her and let the nightfall across her face.
 
 That’s how Julian found her. Her pearls glistened in the moonlight, like her eyes. She was magnificent. He was beginning to believe, more and more, that he had nothing to do with her creation. She was too beautiful. A true god. But now that god was sad.
 
